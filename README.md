@@ -1,1 +1,1 @@
-Thank you for using zinexus domain!
+> Thank you for using zinexus domain!
